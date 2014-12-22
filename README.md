@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THREE SERMONS VPON THE PASSION, RESVRRECTION AND ASCENSION OF OVR SAVIOVR, PREACHED At Oxford, BY BA
+
 1. TO THE RIGHT WORSHIPFVLL Mr. Dr. CORBET DEANE OF CHRIST-CHVRCH IN OXFORD.
 
 #####Body#####
